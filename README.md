@@ -18,3 +18,7 @@ I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
 
 
 ![IMG_3257](https://github.com/user-attachments/assets/51482b71-4235-45b4-a673-689516119bcf)
+
+
+
+By me </3
