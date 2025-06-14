@@ -1,16 +1,17 @@
-## Hi there 👋
+Online name/s: Whisper or Curse ! >_< 
 
-<!--
-**AmyLovesFlowers/AmyLovesFlowers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ׂ╰┈➤ Lvl 15 ! almost 16 
 
-Here are some ideas to get you started:
+▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10 I love music sm ! I ♡︎ Jack Stauber ! <3
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⤑ You can always C+H unless with friends unless they are comfy with it ! ◡̈
+
+If you ever want to play Roblox I am rarley on but if you catch me on Roblox my user is : Manglexfoxy327 ᐢᗜᐢ
+
+: ̗̀➛ I LOVE LOVE drawing Sonic characters! I am working on a big animation right now !  ‹𝟹
+
+I'm always at STH area or CRK ( Mostly STH ) 𐙚
+
+I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
+
+──── ୨୧ ──── Hvy's kin is Curse ( The Curse of X ) (˶˃ ᵕ ˂˶) 
