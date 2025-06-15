@@ -18,7 +18,7 @@ I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
 
 ──── ୨୧ ──── Hvy's kin is Curse ( The Curse of X ) (˶˃ ᵕ ˂˶) 
 
-biggest Neometamy/Metamy shipper ! 𐙚
+Sonamy comf ship ! 𐙚
 
 
 please don't copy my skins, you will get blocked.
