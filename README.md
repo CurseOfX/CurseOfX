@@ -1,6 +1,6 @@
 Online name/s: Whisper or Curse ! >_< 
 
-ׂ╰┈➤ Lvl 15 ! almost 16 
+ׂ╰┈➤ Lvl 15 ! almost 16 / lesbain ! 
 
 ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10 I love music sm ! I ♡︎ Jack Stauber ! <3
 
