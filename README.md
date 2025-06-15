@@ -12,6 +12,8 @@ If you ever want to play Roblox I am rarley on but if you catch me on Roblox my 
 
 I'm always at STH area or CRK ( Mostly STH ) 𐙚
 
+ׂ╰┈➤  I am always on english safe severs ! 
+
 I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
 
 ──── ୨୧ ──── Hvy's kin is Curse ( The Curse of X ) (˶˃ ᵕ ˂˶) 
