@@ -20,9 +20,9 @@ I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
 
 Sonamy comf ship ! 𐙚
 
-
 please don't copy my skins, you will get blocked.
 
-![IMG_3543](https://github.com/user-attachments/assets/8454653b-a142-49df-9021-d4d132872e45)
+![Untitled566_20250618171636](https://github.com/user-attachments/assets/99bae582-4687-4d0f-bed9-83a5471ddb19)
 
-THIS IS A WIP HELPFLEDOW PLS 
+
+@ssoniko Oc ( ˶ˆᗜˆ˵ ) Do check them out! They are super cool ! 
