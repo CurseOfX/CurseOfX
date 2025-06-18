@@ -23,9 +23,6 @@ Sonamy comf ship ! 𐙚
 
 please don't copy my skins, you will get blocked.
 
+![IMG_3543](https://github.com/user-attachments/assets/8454653b-a142-49df-9021-d4d132872e45)
 
-![IMG_3257](https://github.com/user-attachments/assets/51482b71-4235-45b4-a673-689516119bcf)
-
-
-
-By me !
+THIS IS A WIP HELPFLEDOW PLS 
