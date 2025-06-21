@@ -16,7 +16,7 @@ I'm always at STH area or CRK ( Mostly STH ) 𐙚
 
 I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
 
-──── ୨୧ ──── Hvy's kin is Curse ( The Curse of X ) (˶˃ ᵕ ˂˶) 
+──── ୨୧ ──── Hvykin is Curse ( The Curse of X )
 
 Metamy comf ship ! 𐙚
 
