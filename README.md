@@ -22,6 +22,8 @@ Metamy comf ship ! 𐙚 / Ceo of Metamy /Neometamy ( if you don't like the ships
 
 please don't copy my skins, you will get blocked.
 
+: ̗̀➛ Sonadow hater's dniuid. Also putting it in ur name is not going to do anything ( unless a joke skin or sum ) 
+
 ![Untitled566_20250618171636](https://github.com/user-attachments/assets/99bae582-4687-4d0f-bed9-83a5471ddb19)
 
 
