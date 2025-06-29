@@ -18,7 +18,7 @@ I love foxes sm those slipery little red dogs ( ˶ˆᗜˆ˵ )
 
 ──── ୨୧ ──── Hvykin is Curse ( The Curse of X )
 
-Metamy comf ship ! 𐙚 / Ceo of Metamy /Neometamy ( if you don't like the ships I like, pls keep it to yourself. Respect my opinions )
+Metamy / Sonamy comf ship ! 𐙚 / Ceo of Metamy /Neometamy  ( if you don't like the ships I like, pls keep it to yourself. Respect my opinions )
 
 please don't copy my skins, you will get blocked.
 
