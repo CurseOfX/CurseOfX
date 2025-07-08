@@ -22,6 +22,8 @@ Metamy / Sonamy comf ship ! 𐙚 / Ceo of Metamy /Neometamy  ( if you don't like
 
 please don't copy my skins, you will get blocked.
 
+basic dni's ( HH or HB HEAVY dni )
+
 ⤑ Main acc is @CURSEIRL
 
 : ̗̀➛ Sonadow hater's dniuid. Also putting it in ur name is not going to do anything ( unless a joke skin or sum ) 
