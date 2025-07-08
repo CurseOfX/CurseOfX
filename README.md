@@ -28,7 +28,7 @@ basic dni's ( HH or HB HEAVY dni )
 
 : ̗̀➛ Sonadow hater's dniuid. Also putting it in ur name is not going to do anything ( unless a joke skin or sum ) 
 
-![Untitled566_20250618171636](https://github.com/user-attachments/assets/99bae582-4687-4d0f-bed9-83a5471ddb19)
 
+![IMG_4857](https://github.com/user-attachments/assets/4d5407fa-7038-44be-a59e-a34fe58c851c)
 
-@ssoniko Oc ( ˶ˆᗜˆ˵ ) Do check them out! They are super cool ! 
+first Sth oc 
