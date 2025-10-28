@@ -1,3 +1,4 @@
-<img width="724" height="724" alt="Untitled290_20251028025317" src="https://github.com/user-attachments/assets/bb961ecf-014d-4adb-bf22-e78614bcaa74" />
+<img width="180" height="180" alt="IMG_9485" src="https://github.com/user-attachments/assets/7814e507-f011-40f1-8ae4-31287535ad11" />
 
 
+Huge wip
