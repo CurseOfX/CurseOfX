@@ -1,4 +1,1 @@
-
-
-
-Huge wip
+WARNING !! : hiiii! hello, id like to put to out to you all that this user @EimyTheArtistic has been blocking and unfriending people for no reason! Also being VERY disrespectful to others. Please if you see them, it'd be better if you didnt. They also play victim, I had other people youve been in this same problem with Eimy! so please, be CAUTIOUS with int and being friends. 
