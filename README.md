@@ -1,1 +1,1 @@
-WARNING !! : hello, id like to put to out to you all that this user @EimyTheArtistic is playing victim. They talk about harming others and themselves, and just plain being disgusting. I cannot speak nor see them, they've blocked me on everything so if u see them, just be cautious please.
+hi
